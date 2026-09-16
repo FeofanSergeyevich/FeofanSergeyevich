@@ -1,6 +1,7 @@
 　　　　　“ Goodbye , Feofan . ”
 
-　　　　　　　　![1000039766](https://github.com/user-attachments/assets/c10a612d-43e0-4d2d-baf5-0c47d008f056)
+　　　　　　　　![1000039773](https://github.com/user-attachments/assets/5e459030-b9d7-4099-8fde-77bd4e479ffc)
+
 
 　　　　　“ And don't i know it ”
 
@@ -8,7 +9,8 @@
 
 　　　　　” Goodbye , Zandik . ”
 
-　　　　　　　　![1000039765](https://github.com/user-attachments/assets/31800eb4-fe0a-477a-9115-28fc883030c0)
+　　　　　　　　<img width="348" height="478" alt="1000039774" src="https://github.com/user-attachments/assets/4f204190-7fd2-4945-828b-5099826cd87e" />
+
 
 <!--
 **FeofanSergeyevich/FeofanSergeyevich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
