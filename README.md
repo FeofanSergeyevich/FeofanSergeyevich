@@ -14,8 +14,6 @@
 　　　　⌖　” Goodbye ◞ Zandik . ”
 
 　　　　　　　　<img width="348" height="478" alt="1000039774" src="https://github.com/user-attachments/assets/4f204190-7fd2-4945-828b-5099826cd87e" />
-　　　　　　　　　　　　
-              　　　　　　　·̩͙།† ͝ ︶ ͝ ⏝ ͝ ︶ ͝ †། ·̩͙
 
 <!--
 **FeofanSergeyevich/FeofanSergeyevich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
