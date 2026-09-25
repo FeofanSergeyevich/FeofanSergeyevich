@@ -1,20 +1,21 @@
-　　　　⌖　“ Goodbye ◞ Feofan . ”
+⌖　“ If you do manage to create a new world ◞ ”
 
-　　　　　　　　![1000039773](https://github.com/user-attachments/assets/5e459030-b9d7-4099-8fde-77bd4e479ffc)
+“ Perhaps you could plant one outside my office too ? ”
 
 
-　　　　　　　　　　　　　　　　·̩͙།† ͝ ︶ ͝ ⏝ ͝ ︶ ͝ †། ·̩͙
+   ![1000039871](https://github.com/user-attachments/assets/f5ea0b14-e810-4c2f-89a1-d25f57529a26)
 
- 　
 
-　　　　　“ And don't i know it ”
+　　　　　　　　　　　　　　　              　·̩͙།† ͝ ︶ ͝ ⏝ ͝ ︶ ͝ †། ·̩͙
 
-　　　　　“ ..... ”
 
-　　　　⌖　” Goodbye ◞ Zandik . ”
+“ ..... ”
 
-　　　　　　　　<img width="348" height="478" alt="1000039774" src="https://github.com/user-attachments/assets/4f204190-7fd2-4945-828b-5099826cd87e" />
+⌖　“ I'll consider it . ”
 
+   ![1000039872](https://github.com/user-attachments/assets/0fed419a-d8e8-4f0b-b60d-6547bafbbd9a)
+
+🪙🧪
 <!--
 **FeofanSergeyevich/FeofanSergeyevich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
