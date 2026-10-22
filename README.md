@@ -17,7 +17,22 @@
 
 🪙🧪
 <!--
-**FeofanSergeyevich/FeofanSergeyevich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+
+
+
+
+
+
+
+
+
+
+
+Please let the reunite :C
+<img width="200" height="136" alt="1000039661" src="https://github.com/user-attachments/assets/826659b4-6cd9-42f2-ac2c-73ec743780bc" />
+
+
 
 Here are some ideas to get you started:
 
